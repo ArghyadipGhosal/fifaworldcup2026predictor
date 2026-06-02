@@ -1,1 +1,0 @@
-# fifaworldcup2026predictor
